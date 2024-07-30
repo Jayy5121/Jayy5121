@@ -2,7 +2,7 @@
 - 👀 I’m interested in cyber security 
 - 🌱 I’m currently learning BTECH in AIDS
 - 💞️ I’m looking to collaborate on clubs
-- 📫 How to reach me ig: Jayy_.5121
+- 📫 How to reach me linkdin:Jaydatt Kshirsagar 
 
 <!---
 Jayy5121/Jayy5121 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
