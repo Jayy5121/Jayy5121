@@ -1,5 +1,5 @@
 # 💫 About Me:
-- 👋 Hi, I’m @Jayy5121<br>- 👀 I’m interested in cyber security <br>- 🌱 I’m currently learning BTECH in AIDS<br><br>- 💞️ I’m looking to collaborate on clubs<br>- 📫 How to reach me linkedin: www.linkedin.com/in/jaydatt-kshirsagar-890032287
+- 👋 Hi, I’m @Jayy5121<br>- 👀 I’m interested in cyber security <br>- 🌱 I’m currently learning BTECH in AIDS<br>- 🌱 Currently working on Web development.<br>- 💞️ I’m looking to collaborate on clubs<br>- 📫 How to reach me linkedin: www.linkedin.com/in/jaydatt-kshirsagar-890032287
 
 
 ## 🌐 Socials:
